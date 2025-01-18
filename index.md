@@ -1,6 +1,7 @@
 ## Reading Notes
 
 ### 2025
+* 17 January &mdash; Joyce H. Townsend, *How Turner Painted: Materials and Techniques*, 2019 
 * 14 January &mdash; Arnaldo Momigliano, *The Development of Greek Biography*, 1993 [1971]
 * 12 January &mdash; Aeschylus, *The Persians*, translated by Seth G. Benardete
 * 11 January &mdash; Rudolf Bultmann, *Jesus Christ and Mythology*, 1958
