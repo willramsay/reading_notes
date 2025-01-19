@@ -15,5 +15,5 @@
 * 5 January &mdash; Elspeth Barker, *O Caledonia*, 1991
 * 4 January &mdash; William Faulkner, *As I Lay Dying*, 1930
 * 3 January &mdash; LeRoi Jones [Amiri Baraka], *Dutchman*, 1964
-* 2 January, &mdash; MacKinlay Kantor, *The Voice of Bugle Ann*, 1935
-* 1 January, &mdash; J.D. Salinger, *Franny and Zooey*, 1961 [1955, 1957] 
+* 2 January &mdash; MacKinlay Kantor, *The Voice of Bugle Ann*, 1935
+* 1 January &mdash; J.D. Salinger, *Franny and Zooey*, 1961 [1955, 1957] 
