@@ -1,6 +1,7 @@
 ## Reading Notes
 
 ### 2025
+* 21 January &mdash; Sigmund Freud, *Beyond the Pleasure Principle*, 1920, translated by James Strachey
 * 19 January &mdash; The Monks of New Skete and Marc Goldberg, *The Art of Training Your Dog*, 2022
 * 18 January &mdash; Raimond Gaita, *The Philosopher's Dog: Friendships with Animals*, 2002 
 * 17 January &mdash; Joyce H. Townsend, *How Turner Painted: Materials and Techniques*, 2019 
