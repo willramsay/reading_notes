@@ -1,6 +1,7 @@
 ## Reading Notes
 
 ### 2025
+* 22 January &mdash; Sigmund Freud, *The Ego and the Id*, 1923, translated by James Strachey 
 * 21 January &mdash; Sigmund Freud, *Beyond the Pleasure Principle*, 1920, translated by James Strachey
 * 19 January &mdash; The Monks of New Skete and Marc Goldberg, *The Art of Training Your Dog*, 2022
 * 18 January &mdash; Raimond Gaita, *The Philosopher's Dog: Friendships with Animals*, 2002 
