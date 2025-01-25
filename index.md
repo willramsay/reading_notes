@@ -1,6 +1,7 @@
 ## Reading Notes
 
 ### 2025
+* 24 January &mdash; The Monks of New Skete and Marc Goldberg, *Let Dogs Be Dogs*, 2017 
 * 23 January &mdash; Richard Wilbur, *Things of This World*, 1956 
 * 22 January &mdash; Sigmund Freud, *The Ego and the Id*, 1923, translated by James Strachey 
 * 21 January &mdash; Sigmund Freud, *Beyond the Pleasure Principle*, 1920, translated by James Strachey
