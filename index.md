@@ -1,6 +1,7 @@
 ## Reading Notes
 
 ### 2025
+* 28 January &mdash; The Monks of New Skete and Marc Goldberg, *The Joy of Playing with Your Dog*, 2023
 * 25 January &mdash; W.S. Gilbert, *Patience, or Bunthorne's Bride*, 1881
 * 24 January &mdash; The Monks of New Skete and Marc Goldberg, *Let Dogs Be Dogs*, 2017 
 * 23 January &mdash; Richard Wilbur, *Things of This World*, 1956 
