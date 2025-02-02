@@ -3,7 +3,7 @@
 ### 2025
 
 #### February 
-
+* 2 February &mdash; Henry Wadsworth Longfellow, *Evangeline: A Tale of Acadie*, 1847
 #### January
 * 31 January &mdash; W.S. Gilbert, *The Mikado; or, The Town of Titipu*, 1885 
 * 30 January &mdash; W.S. Gilbert, *The Pirates of Penzance; or, The Slave of Duty*, 1879
