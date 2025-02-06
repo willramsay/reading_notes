@@ -3,6 +3,7 @@
 ### 2025
 
 #### February 
+* 5 February &mdash; J.R.R. Tolkien, *The Lord of the Rings*, 1954
 * 2 February &mdash; Alexander Pope, *An Essay on Criticism*, 1711
 * 2 February &mdash; Henry Wadsworth Longfellow, *Evangeline: A Tale of Acadie*, 1847
 #### January
