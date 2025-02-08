@@ -3,6 +3,7 @@
 ### 2025
 
 #### February 
+* 8 February &mdash; Alfred Tennyson, *In Memoriam A.H.H.*, 1950 
 * 7 February &mdash; Azorín, *Las confesiones de un pequeño filósofo*, 1904 
 * 5 February &mdash; J.R.R. Tolkien, *The Lord of the Rings*, 1954
 * 2 February &mdash; Alexander Pope, *An Essay on Criticism*, 1711
