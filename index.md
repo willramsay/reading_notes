@@ -3,6 +3,7 @@
 ### 2025
 
 #### February 
+* 8 February &mdash; Rick Bass, *Colter: The True Story of the Best Dog I Ever Had*, 2000 
 * 8 February &mdash; Alfred Tennyson, *In Memoriam A.H.H.*, 1850 
 * 7 February &mdash; Azorín, *Las confesiones de un pequeño filósofo*, 1904 
 * 5 February &mdash; J.R.R. Tolkien, *The Lord of the Rings*, 1954
