@@ -3,6 +3,7 @@
 ### 2025
 
 #### February 
+* 14 February &mdash; Barbara Cartland, *The Love Pirate*, 1977 
 * 9 February &mdash; Charles Portis, *True Grit*, 1968 
 * 8 February &mdash; Rick Bass, *Colter: The True Story of the Best Dog I Ever Had*, 2000 
 * 8 February &mdash; Alfred Tennyson, *In Memoriam A.H.H.*, 1850 
