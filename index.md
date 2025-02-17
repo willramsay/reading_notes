@@ -3,6 +3,8 @@
 ### 2025
 
 #### February 
+* 16 February &mdash; Alexandros Papadiamantis, *The Murderess*, 1903, trans. by Peter Levi, 1983 
+* 15 February &mdash; Juan Rulfo, *Pedro Páramo*, 1955
 * 14 February &mdash; Barbara Cartland, *The Love Pirate*, 1977 
 * 9 February &mdash; Charles Portis, *True Grit*, 1968 
 * 8 February &mdash; Rick Bass, *Colter: The True Story of the Best Dog I Ever Had*, 2000 
