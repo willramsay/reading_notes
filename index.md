@@ -3,6 +3,8 @@
 ### 2025
 
 #### February 
+* 23 February &mdash; Isaac Bashevis Singer, "Gimpel the Fool", trans. Saul Bellow
+* 21 February &mdash; Alan Bennett, *The Uncommon Reader*, 2007
 * 16 February &mdash; Alexandros Papadiamantis, *The Murderess*, 1903, trans. by Peter Levi, 1983 
 * 15 February &mdash; Juan Rulfo, *Pedro Páramo*, 1955
 * 14 February &mdash; Barbara Cartland, *The Love Pirate*, 1977 
