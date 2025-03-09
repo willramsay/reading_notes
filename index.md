@@ -3,6 +3,7 @@
 ### 2025
 
 #### March
+* 8 March &mdash; George Eliot, *Middlemarch*, 1872 
 * 2 March &mdash; Henry Beston, *The Outermost House*, 1928 
 
 #### February 
