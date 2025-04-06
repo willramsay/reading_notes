@@ -2,7 +2,12 @@
 
 ### 2025
 
+#### April
+* 5 April &mdash; William Service, *Owl*, 1969
+* 5 April &mdash; Jim Crumley, *The Company of Swans*, 1997 
+
 #### March
+* 14 March &mdash; William Shakespeare, *Romeo and Juliet*
 * 10 March &mdash; Helene Hanff, *84, Charing Cross Road*, 1970 
 * 8 March &mdash; George Eliot, *Middlemarch*, 1872 
 * 2 March &mdash; Henry Beston, *The Outermost House*, 1928 
