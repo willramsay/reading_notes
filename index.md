@@ -3,15 +3,15 @@
 ### 2025
 
 #### May
-1 May &mdash; Joseph Addison, Richard Steele, and Eustace Budgell, *The Coverley Papers*, 1711-12
-6 May &mdash; J. L. Carr, *Harpole and Foxberrow General Publishers*, 1992 
+* 1 May &mdash; Joseph Addison, Richard Steele, and Eustace Budgell, *The Coverley Papers*, 1711-12
+* 6 May &mdash; J. L. Carr, *Harpole and Foxberrow General Publishers*, 1992 
 
 #### April
-* 29 April George Pitcher, *The Dogs Who Came to Stay*, 1995
-* 29 April Christopher Marlowe and George Chapman, *Hero and Leander*, 1598 
-* 26 April Bill Watterson, *The Essential Calvin and Hobbes*, 1988
-* 25 April Ben Taylor, *Thinking Basketball*, 2016
-* 12 April Evelyn Waugh, *Brideshead Revisited*, 1945, rev. 1959 
+* 29 April &mdash; George Pitcher, *The Dogs Who Came to Stay*, 1995
+* 29 April &mdash; Christopher Marlowe and George Chapman, *Hero and Leander*, 1598 
+* 26 April &mdash; Bill Watterson, *The Essential Calvin and Hobbes*, 1988
+* 25 April &mdash; Ben Taylor, *Thinking Basketball*, 2016
+* 12 April &mdash; Evelyn Waugh, *Brideshead Revisited*, 1945, rev. 1959 
 * 5 April &mdash; William Service, *Owl*, 1969
 * 5 April &mdash; Jim Crumley, *The Company of Swans*, 1997 
 
