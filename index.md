@@ -3,8 +3,8 @@
 ### 2025
 
 #### May
-* 1 May &mdash; Joseph Addison, Richard Steele, and Eustace Budgell, *The Coverley Papers*, 1711-12
 * 6 May &mdash; J. L. Carr, *Harpole and Foxberrow General Publishers*, 1992 
+* 1 May &mdash; Joseph Addison, Richard Steele, and Eustace Budgell, *The Coverley Papers*, 1711-12
 
 #### April
 * 29 April &mdash; George Pitcher, *The Dogs Who Came to Stay*, 1995
