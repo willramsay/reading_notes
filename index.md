@@ -3,6 +3,10 @@
 ### 2025
 
 #### May
+* 9 May &mdash; Daphne du Maurier, *Rebecca*, 1938
+* 8 May &mdash; Carlo Ginzburg, *The Cheese and the Worms: The Cosmos of a Sixteenth-Century Miller*, 1976, trans. John and Anne C. Tedeschi
+* 7 May &mdash; Daniel Rosenberg and Anthony Grafton, *Cartographies of Time: A History of the Timeline*, 2013
+* 7 May &mdash; Giovanni Guareschi, *The Complete Little World of Don Camillo*, 1948, trans. Adam Elgar
 * 6 May &mdash; J. L. Carr, *Harpole and Foxberrow General Publishers*, 1992 
 * 1 May &mdash; Joseph Addison, Richard Steele, and Eustace Budgell, *The Coverley Papers*, 1711-12
 
