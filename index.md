@@ -3,6 +3,7 @@
 ### 2025
 
 #### May
+* 9 May &mdash; Plato, *Symposium*, trans. Alexander Nehamas and Paul Woodruff 
 * 9 May &mdash; Daphne du Maurier, *Rebecca*, 1938
 * 8 May &mdash; Carlo Ginzburg, *The Cheese and the Worms: The Cosmos of a Sixteenth-Century Miller*, 1976, trans. John and Anne C. Tedeschi
 * 7 May &mdash; Daniel Rosenberg and Anthony Grafton, *Cartographies of Time: A History of the Timeline*, 2013
