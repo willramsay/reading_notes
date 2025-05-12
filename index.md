@@ -3,6 +3,7 @@
 ### 2025
 
 #### May
+* 11 May &mdash; Joe Hutto, *Illumination in the Flatwoods: A Season Living Among the Wild Turkey*, 1995
 * 10 May &mdash; E. H. Gombrich, *The Story of Art*, 16th ed, 1995 [1st ed., 1950] 
 * 9 May &mdash; Plato, *Symposium*, trans. Alexander Nehamas and Paul Woodruff 
 * 9 May &mdash; Daphne du Maurier, *Rebecca*, 1938
