@@ -3,6 +3,7 @@
 ### 2025
 
 #### May
+* 13 May &mdash; D. P. Walker, *Spiritual and Demonic Magic from Ficino to Campanella*, 1958 
 * 12 May &mdash; Marilynne Robinson, *Gilead*, 2004
 * 11 May &mdash; Joe Hutto, *Illumination in the Flatwoods: A Season Living Among the Wild Turkey*, 1995
 * 10 May &mdash; E. H. Gombrich, *The Story of Art*, 16th ed, 1995 [1st ed., 1950] 
