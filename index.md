@@ -3,6 +3,7 @@
 ### 2025
 
 #### May
+* 14 May &mdash; Christopher Ricks, *Milton's Grand Style*, 1963
 * 13 May &mdash; D. P. Walker, *Spiritual and Demonic Magic from Ficino to Campanella*, 1958 
 * 12 May &mdash; Marilynne Robinson, *Gilead*, 2004
 * 11 May &mdash; Joe Hutto, *Illumination in the Flatwoods: A Season Living Among the Wild Turkey*, 1995
