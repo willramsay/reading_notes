@@ -3,7 +3,7 @@
 ### 2025
 
 #### May
-* 15 May &mgash; William M. Ramsay, *Second Corinthians*, 2004 
+* 15 May &mdash; William M. Ramsay, *Second Corinthians*, 2004 
 * 14 May &mdash; Christopher Ricks, *Milton's Grand Style*, 1963
 * 13 May &mdash; D. P. Walker, *Spiritual and Demonic Magic from Ficino to Campanella*, 1958 
 * 12 May &mdash; Marilynne Robinson, *Gilead*, 2004
