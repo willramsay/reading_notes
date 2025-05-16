@@ -3,6 +3,7 @@
 ### 2025
 
 #### May
+* 16 May &mdash; Larry Silver, *Rembrandt's Holland*, 2018 
 * 15 May &mdash; William M. Ramsay, *Second Corinthians*, 2004
 * 15 May &mdash; J. D. Salinger, "A Perfect Day for Bananafish", 1948
 * 14 May &mdash; Christopher Ricks, *Milton's Grand Style*, 1963
