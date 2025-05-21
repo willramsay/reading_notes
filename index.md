@@ -3,6 +3,8 @@
 ### 2025
 
 #### May
+* 20 May &mdash; David Howarth, *1066: The Year of the Conquest*, 1977
+* 20 May &mdash; Matthew Arnold, “Empedocles on Etna. A Dramatic Poem”, 1852
 * 18 May &mdash; Antoine de Saint-Exupéry, *Le Petit Prince*, 1943
 * 17 May &mdash; John Buchan, *The Thirty-Nine Steps*, 1915 
 * 17 May &mdash; Thomas Lodge, *A Margarite of America*, 1596 
