@@ -3,6 +3,8 @@
 ### 2025
 
 #### May
+* 22 May &mdash; Elizabeth Alice Honig, *Pieter Bruegel and the Idea of Human Nature*, 2019 
+* 21 May &mdash; T. H. White, *The Goshawk*, 1951
 * 20 May &mdash; David Howarth, *1066: The Year of the Conquest*, 1977
 * 20 May &mdash; Matthew Arnold, “Empedocles on Etna. A Dramatic Poem”, 1852
 * 18 May &mdash; Antoine de Saint-Exupéry, *Le Petit Prince*, 1943
