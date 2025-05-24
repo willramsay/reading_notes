@@ -3,6 +3,7 @@
 ### 2025
 
 #### May
+* 23 May &mdash; Johann Wolfgang von Goethe, *Iphigenia in Tauris*, 1786, trans. David Luke 
 * 22 May &mdash; Elizabeth Alice Honig, *Pieter Bruegel and the Idea of Human Nature*, 2019 
 * 21 May &mdash; T. H. White, *The Goshawk*, 1951
 * 20 May &mdash; David Howarth, *1066: The Year of the Conquest*, 1977
