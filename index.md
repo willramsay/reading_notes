@@ -3,6 +3,7 @@
 ### 2025
 
 #### May
+* 25 May &mdash; Rudyard Kipling. *The Jungle Book*, 1894 
 * 25 May &mdash; Cass Canfield, *Sam Adams's Revolution 1765-1776*, 1976
 * 24 May &mdash; Michael Shaara, *The Killer Angels*, 1974 
 * 23 May &mdash; Johann Wolfgang von Goethe, *Iphigenia in Tauris*, 1786, trans. David Luke 
