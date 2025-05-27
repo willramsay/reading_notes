@@ -3,6 +3,7 @@
 ### 2025
 
 #### May
+* 26 May &mdash; *Lazarillo de Tormes*, 1554 
 * 25 May &mdash; Rudyard Kipling. *The Jungle Book*, 1894 
 * 25 May &mdash; Cass Canfield, *Sam Adams's Revolution 1765-1776*, 1976
 * 24 May &mdash; Michael Shaara, *The Killer Angels*, 1974 
